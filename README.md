@@ -36,4 +36,4 @@
 
 标签系统完善：通过番号/女优名/类型快速定位你想看的内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/kong145/121412 ）</span>
